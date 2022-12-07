@@ -2,7 +2,9 @@
 
 ## Contacts
 **Location:** Astrakhan, Russian Federation
+
 **E-mail:** alina.manshin@gmail.com
+
 **Telegram:** @a_manshina
 
 ## About me
